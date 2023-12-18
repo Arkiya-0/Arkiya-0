@@ -1,4 +1,5 @@
-- Aku mah masih pemula 
+- Aku mah masih pemula
+- Photography master
 - UI/UX Designer
 - Still learning ( Dont hope to much )
 
